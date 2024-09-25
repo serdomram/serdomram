@@ -10,7 +10,7 @@ Bueno que entre medias hice una carrera de audiovisuales a la que le he dado uso
 
 ### Cositas sobre mí 📌
 
-* Me gusta la fotografía y la realización de vídeo. Tengo el sueño de hacer una foto bonita de las estrellas en movimiento pero después de _doce_ intentos ninguno ha salido bien.
+* Me gusta la fotografía y la realización de vídeo. Tengo el sueño de hacer una foto bonita de las estrellas en movimiento pero después de _doce_ intentos ninguno ha salido bien. ([Ejemplo de que clase de foto hablo](https://cseligman.com/text/sky/sostartrails.jpg))
 
 * También me gustan los videojuegos, _sorepndente, lo sé_, aunque no espero estudiar programación para desarrollarlos. Si por lo que sea se me ocurre una idea millonaria no me cierro a ponerme a programar para videojuegos, pero eso, soy más de jugarlos y no de crearlos.
 
