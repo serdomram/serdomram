@@ -6,7 +6,7 @@ Aquí voy a hablar un poquito de mí espero que mi yo del futuro no se arrepient
 
 Después de cursar bachillerato me metí a estudair _informática_. No me gustó y me fuí por lo que ahora he vuelto a **informática** 🤓.
 
-Bueno que entre medias hice una carrera de audiovisuales a la que le he dado uso trabajando de tradcutor y _community manager_ en empresas inglesas además de una producta valenciana, pero nada que sea muy relevante aquí.
+Bueno que entre medias hice una carrera de audiovisuales a la que le he dado uso trabajando de tradcutor y _community manager_ en empresas inglesas, además de una productora valenciana, pero nada que sea muy relevante aquí.
 
 ### Cositas sobre mí 📌
 
